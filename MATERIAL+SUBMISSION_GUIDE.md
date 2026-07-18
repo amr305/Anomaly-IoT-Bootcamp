@@ -17,7 +17,7 @@ Watch videos **2 through 13** from this playlist:
 7. Share your fork link in this channel
 
 ## 📅 Deadline
-**Friday, 11:59 PM**
+**Sunday, 11:59 PM**
 
 ## 🆘 Questions?
 Ask in this channel. I'm here to help!
